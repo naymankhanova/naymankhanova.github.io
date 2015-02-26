@@ -1,1 +1,0 @@
-# naymankhanova.github.io
